@@ -15,6 +15,6 @@ I'm a Virgo(September 9th) so I guess I'm a perfectionist? With an eye for detai
 
 I am Me.
 
-And I'd like to know who you are, so
+And I'd like to know who you are, so...
 ### Contact me
 [kiraguralph@gmail.com](mailto:kiraguralph@gmail.com)
