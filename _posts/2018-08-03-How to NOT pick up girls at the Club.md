@@ -1,4 +1,7 @@
-
+---
+layout: post
+Title: How to NOT pick up girls at the Club
+---
 DISCLAIMER: The author does realise, and wishes to disclose, that he has as much “game” as a myopic pre-teen with buck-teeth and bug-eye glasses being given a wedgie while holding up a sign that says “Will you go to prom with me.” Directed to the head of the cheerleading squad.
 He also wishes to disclose that he watches a LOT of movies…and romcoms. He says “sue me” and shrugs. He also says please lift with your legs, not with your back. Safety first afterall. (Get it?? Because you’re PICKING UP girls- I don’t know why I bother sometimes)
 
